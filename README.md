@@ -1,1 +1,1 @@
-Mechanical Engineer, Computer Enthusiast.
+Computer Enthusiast.
